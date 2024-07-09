@@ -1,0 +1,1 @@
+### crie imagem de uma ovelha velha dando conselhos bíblicos
